@@ -21,4 +21,4 @@
 ### Contacts
 
 - **Email**: [Work mail](constant2play@gmail.com)
-- **Telegram**: [@BeKonich](https://t.me/BeKonich)# Berdni
+- **Telegram**: [@BeKonich](https://t.me/BeKonich)
